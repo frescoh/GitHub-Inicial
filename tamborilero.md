@@ -59,3 +59,20 @@ Y había que verlos bailar a esos tres tipejos. Parecían tres osos de feria.
 - ¡Eso es, así no podréis perseguirme! 
 ###### Y él, a escape. De vez en cuando, por precaución, daba algún golpecillo al tambor. Y enseguida se ponían a bailar las liebres en sus madrigueras, las ardillas sobre las ramas, las lechuzas en los nidos, obligadas a despertarse en pleno día... 
 ###### Y  siempre adelante, el buen tamborilero caminaba y corría, para llegar a su casa... 
+
+# Final
+
+###### Andando y andando el tamborilero empieza a pensar: «Este hechizo hará mi fortuna. En el fondo he sido estúpido con aquellos bandidos. Podía haber hecho que me entregaran su dinero. Casi casi, vuelvo a buscarlos...» 
+###### Y ya daba la vuelta para volver sobre sus pasos cuando vio aparecer una diligencia al final del sendero. 
+- He ahí algo que me viene bien. 
+###### Los caballos, al trotar, hacían tintinear los cascabeles. El cochero, en el pescante, silbaba alegremente una canción. Junto a él iba sentado un policía armado. 
+- Salud, tamborilero, ¿quieres subir? 
+- No, estoy bien aquí. 
+- Entonces apártate del camino porque tenemos que pasar. 
+- Un momento. Echad primero un bailecito. 
+###### Barabán, barabán... El tambor empieza a redoblar. Los caballos se ponen a bailar. El cochero se tira de un salto y se lanza a menear las piernas. Baila el policía, dejando caer el fusil. Bailan los pasajeros. 
+###### Hay que aclarar que aquella diligencia transportaba el oro de un banco. Tres cajas repletas de oro. Serían unos trescientos kilos. El tamborilero, mientras seguía tocando el tambor con una mano, con la otra hace caer las cajas en el sendero y las empuja tras un arbusto con los pies. 
+- ¡Bailad! ¡Bailad! 
+- ¡Basta ya! ¡No podemos más! 
+- Entonces marchaos a toda velocidad, y sin mirar hacia atrás... 
+###### La diligencia vuelve a ponerse en camino sin su preciosa carga.  Y hete aquí al tamborilero millonario... Ahora puede construirse un chalet, vivir de las rentas, casarse con la hija de un comendador. Y cuando necesite dinero, no tiene que ir al banco: le basta su tambor.
