@@ -59,3 +59,12 @@ Y había que verlos bailar a esos tres tipejos. Parecían tres osos de feria.
 - ¡Eso es, así no podréis perseguirme! 
 ###### Y él, a escape. De vez en cuando, por precaución, daba algún golpecillo al tambor. Y enseguida se ponían a bailar las liebres en sus madrigueras, las ardillas sobre las ramas, las lechuzas en los nidos, obligadas a despertarse en pleno día... 
 ###### Y  siempre adelante, el buen tamborilero caminaba y corría, para llegar a su casa... 
+
+# Final 
+
+###### Andando y andando... Mientras anda, el tamborilero piensa: extraño encantamiento y extraño tambor. Me gustaría mucho saber cómo funciona el encantamiento. 
+###### Mira los palillos, los vuelve por todos lados: parecen dos palitos de madera normales. 
+- ¡A lo mejor el secreto está dentro, bajo la piel del tambor! 
+###### El soldadito hace un agujerito en la piel con el cuchillo. 
+- Echaré un vistazo —dice. Dentro no hay nada de nada. 
+- Paciencia, me conformaré con el tambor como es. 
