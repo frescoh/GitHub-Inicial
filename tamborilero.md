@@ -59,3 +59,14 @@ Y había que verlos bailar a esos tres tipejos. Parecían tres osos de feria.
 - ¡Eso es, así no podréis perseguirme! 
 ###### Y él, a escape. De vez en cuando, por precaución, daba algún golpecillo al tambor. Y enseguida se ponían a bailar las liebres en sus madrigueras, las ardillas sobre las ramas, las lechuzas en los nidos, obligadas a despertarse en pleno día... 
 ###### Y  siempre adelante, el buen tamborilero caminaba y corría, para llegar a su casa... 
+
+# Final
+
+###### Andando y andando, el tamborilero ve a un cazador a punto de disparar a un tordo. Barabán, barabán... el cazador deja caer la carabina y empieza a bailar. El tordo escapa. 
+- ¡Desgraciado! ¡Me las pagarás! 
+- Mientras tanto, baila. Y si quieres hacerme caso, no vuelvas a disparar a los pajaritos. Andando y andando, ve a un campesino que golpea a su burro...
+- ¡Baila! 
+- ¡Socorro! 
+- ¡Baila! Solamente dejaré de tocar si me juras que nunca volverás a pegar a tu burro. 
+- ¡Lo juro! 
+###### Andando y andando, el generoso soldadito echa mano de su tambor siempre que se trata de impedir un acto de prepotencia, una injusticia, un abuso. Y encuentra tantas arbitrariedades que nunca consigue llegar a casa. Pero de todas formas está contento y piensa: «Mi casa estará donde pueda hacer el bien con mi tambor»
